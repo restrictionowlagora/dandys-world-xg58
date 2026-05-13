@@ -1,4 +1,4 @@
-
+Download top dandy's world Script for dandy's world, the best script available, featuring undetectable and god mode. This powerful tool ensures you have the upper hand in every
 
 
 
